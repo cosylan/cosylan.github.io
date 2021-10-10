@@ -5,14 +5,11 @@
 ## 躺平人士专用 ☕ ☕ ☕
 ## 来看看某人恋爱的酸臭味
 ![{TOK3V}9{MHOYW5VT`PW~NU](https://user-images.githubusercontent.com/92146858/136694774-0205a41a-ccf7-4d20-b07f-a31c1c307881.png)
-![USK8FBQ`19Y(TV4BU`{@HVW](https://user-images.githubusercontent.com/92146858/136694775-fef030c8-bf4f-42c9-aac4-f632664de1bd.png)
+![8$R(81X`G92IOI`_UZLRCDS](https://user-images.githubusercontent.com/92146858/136694894-b5ea07eb-a6d4-438c-b2f4-fcd0446ccb26.png)
 
 ## 还有这个春心荡漾的人
-![Uploading %VX%{)DTIXZ3N4D95@AZ(NN.png…]()
+![Q1L}G8`UP_$7 _MPGPXOJ$A](https://user-images.githubusercontent.com/92146858/136694862-62a317e6-f5a2-4aa4-a340-ac911a20990a.png)
 
-You can use the [editor on GitHub](https://github.com/cosylan/cosylan.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 ### Markdown
 
