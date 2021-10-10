@@ -1,4 +1,4 @@
-### 个人博客网页
+### 个人博客网页(兰）
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/cosylan/cosylan.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
